@@ -9,7 +9,7 @@ Het partijbestuur heeft als taak het:
 - Vaststellen van de financiële en materiële bevoegdheid van de commissies
 - Dechargeren of opheffen van de commissie bij volbrenging
 
-> **Artikel 11 van de statuten**<br/>
+> **Artikel 21 van de statuten**<br/>
 > Het bestuur is bevoegd onder diens verantwoordelijkheid aparte gremia of commissies in te stellen, zoals bijvoorbeeld een Raad van Advies, een Comité van Aanbeveling en dergelijke.
 > De samenstelling, wijze van benoeming, besluitvorming, zittingstermijn en dergelijke worden door het bestuur bij afzonderlijk reglement geregeld.
 
